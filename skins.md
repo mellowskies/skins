@@ -2,3 +2,7 @@
 ![a](https://i.imgur.com/IABQFWP.jpg)
 # [vaxei blue](https://mellowskies.s-ul.eu/BFGKyFTz)
 ![vaxei blue](https://i.imgur.com/40ytXRF.jpeg)
+# [Jace 6.25](https://mellowskies.s-ul.eu/waPn9UiF)
+![](https://osu.gatari.pw/ss/3G92XQ2Z.jpg)
+# [Aristia](https://mellowskies.s-ul.eu/K865ayvg)
+![](https://osu.gatari.pw/ss/5XPFIDW5.jpg)
