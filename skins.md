@@ -1,3 +1,5 @@
+# [#-Tokori Vaxei Edit](https://mellowskies.s-ul.eu/GKsP8FF5)
+![](https://osu.gatari.pw/ss/HRCMS5PI.jpg)
 # [kablazerino alt 202X](https://mellowskies.s-ul.eu/yn6qv6Fm)
 ![](https://osu.gatari.pw/ss/GTWM73GJ.jpg)
 # [-theez-](https://mellowskies.s-ul.eu/cEH1xMqz)
